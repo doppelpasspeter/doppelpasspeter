@@ -1,4 +1,3 @@
 - 👋 Hi, I’m Peter Wingen
-- 👀 I’m interested in Football, digitalisation, further development.
-- 💞️ I’m looking to collaborate on ...
+- 👀 I’m interested in football, digitalisation and bringing both together ;-)
 - 📫 www.linkedin.com/in/peter-wingen/ || www.wingen.de || peter@wingen.de
